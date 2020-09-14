@@ -1,1 +1,1 @@
-# Test_s_Egorom
+# Test about plusing  new players)
